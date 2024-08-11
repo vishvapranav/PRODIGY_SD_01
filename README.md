@@ -1,1 +1,1 @@
-# Prodigy-InfoTech-Internship-SD
+# PRODIGY_SD_01
